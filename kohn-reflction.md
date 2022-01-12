@@ -16,5 +16,6 @@ The time where I took the easy way out would be during my school when I was in G
 1. I was scared as my assignment was already due.
 2. The next reason would be I was procrastinating all over the week when my friends had already provided me with the notes to start on the assignment.
 3. I was not confident on myself that I would have been able to the assignment on my own.
+
 With time and how the education system now is growing, students too have realized that the grade doesn't define who we can be and what we are qualified for.
 
