@@ -1,4 +1,4 @@
 # preparation01
 My STAT with R assignment on Github
-![](https://giphy.com/gifs/moodman-giFLHb8U7IhLgvB6wC.png)
-![This is an image](https://giphy.com/gifs/moodman-giFLHb8U7IhLgvB6wC.png)
+
+![This is an image](https://dogbreedersguide.com/wp-content/uploads/2014/11/funny-dog-feeling-so-cold-picture.jpg)
